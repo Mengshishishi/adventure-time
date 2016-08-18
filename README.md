@@ -8,4 +8,4 @@ And welcome to our new colloborators in CPH!
 
 But does it blend?!?!?!
 
-Hello :)
+Hello
